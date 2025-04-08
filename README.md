@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @v86517
+- 👀 I’m interested in studing programming and hungry for knowledge!
